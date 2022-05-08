@@ -1,4 +1,5 @@
-![OQT](https://user-images.githubusercontent.com/83019866/167226817-0921ecd6-1e65-42db-9198-dccae422d600.png)
+![OQT](https://user-images.githubusercontent.com/83019866/167308103-57a1e3c6-e74d-4e65-8faf-791ad2d2e741.png)
+
 
 ![CL](https://user-images.githubusercontent.com/83019866/167226819-ffb35f6e-73d3-4e19-ae0d-c291f8c325fd.png)
 
